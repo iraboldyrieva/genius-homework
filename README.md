@@ -1,1 +1,1 @@
-[Homework 1](https://your-name.github.io/genius-homework/genius-homework-1/)<br>
+[Homework 1](https://iraboldyrieva.github.io/genius-homework//genius-homework-1/)<br>
